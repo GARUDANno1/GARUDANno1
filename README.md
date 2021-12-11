@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GARUDANno1
 - 👀 I’m interested in everthing
-- 🌱 I’m currently searching whare to start 
+- 🌱 I’m currently searching where to start 
 - 💞️ I’m looking to collaborate on something intresting
 - 📫 How to reach me discord id-  GARUDAN#0538
 
